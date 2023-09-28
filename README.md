@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kovno
+- I hate coding
+- Coding should be a sin
+- No, i will not make u a botnet or a osint
+- My disc is luv.sec
